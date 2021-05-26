@@ -5,3 +5,6 @@ As an Associate in my College Clubs, I am working on my interests i.e., Blockcha
 
 I always like to do my work perfect and try to make an impact. I take every responsibility, thinking myself to lead from front. I do any work as a challenge and my only try is to win. But I don’t regret at my loss because I either win or learn. “DO” is my favorite word.
 Now, my focus is not only enhancing these skills but also creating new skills to make an impact on society. Ultimately, trying to make world a better place to live.
+
+[LinkedIn] : <div class="badge-base LI-profile-badge" data-locale="en_US" data-size="large" data-theme="light" data-type="VERTICAL" data-vanity="praveenprakashtiwari" data-version="v1"><a class="badge-base__link LI-simple-link" href="https://in.linkedin.com/in/praveenprakashtiwari?trk=profile-badge">PRAVEEN PRAKASH TIWARI</a></div>
+              
